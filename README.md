@@ -1,2 +1,0 @@
-# Shaker-store-
-Accessories 
